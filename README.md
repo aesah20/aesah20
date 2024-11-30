@@ -7,7 +7,7 @@ Aqui estão algumas ideias para você começar:
 - 🤔 Procuro ajuda com matemática
 - 💬 Pergunte-me sobre bolo
 - 📫 aesahx_x
-- colocar o @esscola aqui
+- sara.reis.oliveira@escola.pr.gov.br
 - 😄 Ela 
 - 🎀 Sou organizada
 - 
